@@ -1,0 +1,8 @@
+![youtube](https://user-images.githubusercontent.com/93245515/160540977-bfff06f9-9b0f-4a16-b2de-81edcfba6f6f.png)
+![instagram](https://user-images.githubusercontent.com/93245515/160540980-a9db432e-a889-40e9-be98-cbda83f6efc5.png)
+![line](https://user-images.githubusercontent.com/93245515/160540984-754d65e2-0852-4ed3-be43-c398bd3091b9.png)
+![onlyfans](https://user-images.githubusercontent.com/93245515/160540987-a1b63a87-0835-41dd-878e-e8a22126b1d4.png)
+![tiktok](https://user-images.githubusercontent.com/93245515/160540993-350a67de-53e4-4063-a2f1-e3fd0736d0a5.png)
+![twitter](https://user-images.githubusercontent.com/93245515/160540997-31189fac-b890-4798-9b05-6c8f954ae862.png)
+![whatsapp](https://user-images.githubusercontent.com/93245515/160541000-a54e7377-9320-4343-ab33-b3556ea7f418.png)
+![pinterest](https://user-images.githubusercontent.com/93245515/160541054-efddc015-8ab2-44f5-9934-3591ebbdcbc1.png)
